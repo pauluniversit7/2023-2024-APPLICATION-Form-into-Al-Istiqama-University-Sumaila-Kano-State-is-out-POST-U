@@ -1,0 +1,2 @@
+# 2023-2024-APPLICATION-Form-into-Al-Istiqama-University-Sumaila-Kano-State-is-out-POST-U
+2023-2024,APPLICATION Form into Al-Istiqama University, Sumaila, Kano State is out, POST UTME,TRANSFER FORM. Call☎️ O8O36640134 (+234)8O36640134 ADMIN OFFICE Post-UTME, TRANSFER FORM, Remedial form, Pre-Degree form, IJMB, JUPEB, PGD, MASTER FORM, TRANSCRIPT Form, Diploma Programme are all on process. For more details on how t
